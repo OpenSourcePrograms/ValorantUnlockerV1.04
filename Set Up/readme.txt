@@ -1,0 +1,1 @@
+Open valorant and run the exe file.
